@@ -4,4 +4,4 @@
 
 
 ## Season 01
-[[Work/Jujutsu Kaisen/Episodes/S01/Ryomen Sukuna\|Ryomen Sukuna]]
+ [[Work/Jujutsu Kaisen/Episodes/S01/Ryomen Sukuna\|Ryomen Sukuna]]
